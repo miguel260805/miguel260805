@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my favorites programming language.
 - 📫 How to reach me: Maikpro.
 - 😄 Pronouns: He.
-- ⚡ Fun fact: I like going to the gym and really love go to concerts.
+- ⚡ Fun fact: I like going to the gym and also going to concerts of my favorite artists.
